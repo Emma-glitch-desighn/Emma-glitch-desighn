@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning @school high school
 - 💞️ I’m looking to collaborate on best performancies with experts
 - 📫 How to reach me email. onyanchajunior824@gmail.com
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+- 😄 Pronouns:baxyee_824
+- ⚡ Fun fact: joker singer
 
 <!---
 Emma-glitch-desighn/Emma-glitch-desighn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
